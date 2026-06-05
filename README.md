@@ -42,7 +42,7 @@ I'm an aspiring Data Analyst passionate about turning raw data into meaningful i
 
 ## 📫 Connect With Me
 
-* LinkedIn: [Add Your LinkedIn URL]
+* LinkedIn: in/muskan-yadav-50074a3a1
 * GitHub: https://github.com/drdopamine-alt
 
 ⭐ Open to Data Analyst Internships and Learning Opportunities.
